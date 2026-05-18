@@ -1,1 +1,0 @@
-# FitNavi_legal
